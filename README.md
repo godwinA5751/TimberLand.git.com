@@ -1,2 +1,2 @@
-# TimberLand.git.com
+# TimberLand.com
 TimberLand Building Materials Store
